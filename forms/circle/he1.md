@@ -41,6 +41,7 @@
 
 אורובורוס
 =======
+![](https://1.bp.blogspot.com/-zXxSoZPpv6g/WCZDpWcB0DI/AAAAAAAAL10/mWg3XAOJBSk9J-M0H23OwCq7uIUkMsAcwCLcB/s1600/ouroboros-scale-creation-microcosm-macrocosm-cosmic-cycle.jpg)
 
 צורה חשובה של מעגליות היא נחש הבולע את זנבו, הנקרא אורבורוס. זהו סמל עתיק אך הוא קיים בהרבה תרבויות, בצורה
 כזאת או אחרת. לפעמים זהו כלב שרץ אחרי זנבו אבל הרעיון מאד דומה. 
