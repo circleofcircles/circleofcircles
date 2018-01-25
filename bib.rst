@@ -7,4 +7,3 @@ This will contain an expanding list of books, articles, stories poems and texts 
 - Cutting through Spiritual Materialism, Chögyam Trungpa
 - The Mystery of Presence, Ilan Amit
 - Catch 22, Jospeh Heller
-- `Generalizing from One Example <http://lesswrong.com/lw/dr/generalizing_from_one_example>`_, Yvain
