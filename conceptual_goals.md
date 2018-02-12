@@ -1,0 +1,6 @@
+- Communication can help individuals to understand each other - couple therapy (and other therapies)
+- Politics and peace - we can select several people from similiar community and create connectivity graph inside a society that can "trully" communicate with true understanding between quiete different belief systems and internal lenguages. 
+- Help people to prepare and integrate strong expiriences and get tools to analyze belief systems (i.e. trips) 
+- Expanding views and developing universal lenguage that can help translate and relate different belief systems (energetic translation)
+- Build step by step spiritual practice to enjoy life more and feel every moment more trip like (i.e. connceted and free). 
+- Build psychological strength and insight into self 
