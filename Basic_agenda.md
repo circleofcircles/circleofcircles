@@ -1,11 +1,11 @@
 # Who is this book for:
 
-People who seek
-- Deeper way of life
-- Awareness 
-- Order and directed path 
-- Control of their life through understnding and practice
-- Spirituality without non scientific woo-woo 
+People who seek:
+- Deeper way of life.
+- Awareness.
+- Order and directed path.
+- Control of their life through understnding and practice.
+- Spirituality without non scientific woo-woo.
 
 # How one should think about the ideas here:
 
