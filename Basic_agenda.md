@@ -1,4 +1,4 @@
-### Who is this book for:
+# Who is this book for:
 
 People who seek
 - Deeper way of life
@@ -7,7 +7,7 @@ People who seek
 - Control of their life through understnding and practice
 - Spirituality without non scientific woo-woo 
 
-### How one should think about the ideas here:
+# How one should think about the ideas here:
 
 - The center and the "ground truth" is the student. If the student is not happy it's teacher fault. 
 - The practices should be practiced as long as they benefit you, and you find them helpful in other areas of life. 
@@ -15,7 +15,7 @@ People who seek
 - One should always test and check the ideas on himself, if they don't work - they should be improved. 
 - This is basically personal science, and we try to develope different tools to improve personal reasearch. 
 
-### Why is this important: 
+# Why is this important: 
 
 - This is a skill set which is important to other life areas, by mastering it - you'll be able to improve in other areas greatly. 
 - Learning to learn, knowing how to managed yourself, feeling connected to oneself and others is a source of many goods in life. 
@@ -23,7 +23,7 @@ People who seek
 - knowing how to think and develop skills to manage different life situation, is basically having more control and awareness in life. 
 - Learning to make smarter, better, well thought and aware decission for yourself and others, is very essential skill in life. 
 
-### What is the "ideal" mental state: 
+# What is the "ideal" mental state: 
 
 - Having control over your mental state and having tools and skills and awareness in chosing your own optimal state. 
 - We don't push toward positivity, everyone should find their own balance between the positivity and negativity in their life. 
@@ -32,7 +32,7 @@ People who seek
 - Having deep feeling of being part, feeling belong to this universe. 
 - Learning to balance between enjoyment and focus. Learning to balance and have a benefits of any two oposite states.
 
-### How do we achieve this state:
+# How do we achieve this state:
 
 - No magical thinking, just hard and systematic work. 
 - Having different practices, that will help you turn on/off mental switches. 
@@ -40,13 +40,15 @@ People who seek
 - Learning from mistakes, thinking and adapting. 
 - Exploring through dialectics (overcomming resistance). Dialectics with other perspectives, states of mind and reality. 
 
-### Main practice fundamentals
+# Main practice 
 
-* Daily practice. 
-* Long range goal setting. 
-* Learning from mistakes and adapting. 
-* On the fly practicing.
-* Dialectics. 
+## Fundamentals
+
+- Daily practice. 
+- Long range goal setting. 
+- Learning from mistakes and adapting. 
+- On the fly practicing.
+- Dialectics. 
 
 #### Daily practice.
 * Meditation (14 steps practice)
@@ -80,7 +82,7 @@ People who seek
 * We sometimes don't understand ourselves. Many times at different mood or state of mind we think different things, this is dialectics inside onself. 
 * The reality is sometimes stronger than our assumptions and expectations of it as of ourselves. Reality can challenge us many times more than friends and books and even more than ourselves. This mainly includes new expiriences which we gain through exiting the comfort zone. 
 
-### Main practice through communication 
+## Communication 
 
 Other people is a very reach source of self improvement. The different between communication and the other areas is that communication is symmetrical, on the other side there is another conscious entity as we're, that can change us as well as we them. So this is special case of dialectics that we should pay more close attention to. 
 
@@ -91,7 +93,7 @@ Other people is a very reach source of self improvement. The different between c
 - In the same way many times we judge before we learned the detailes, this is also a way we project our believes on others. This is great source of learning, and self awareness. 
 - Aware dialog is a technique where we get into slower paste and try to focus solely on the dialog. This is where the dialog becomes meditation, we merge our realities through dialog and not only "having a nice conversation". 
 
-### How do you know you're on the right track
+# How do you know you're on the right track
 
 - You know how to deal with different challenging life situations. When you're bored, anxious, upset etc. 
 - Feeling more connected to yourself and belong to this reality. Less validation seeking from outside. 
