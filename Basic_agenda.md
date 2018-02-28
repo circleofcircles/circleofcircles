@@ -27,7 +27,7 @@ People who seek
 
 - Having control over your mental state and having tools and skills and awareness in chosing your own optimal state. 
 - We don't push toward positivity, everyone should find their own balance between the positivity and negativity in their life. 
-- Having the sense of your core values, and a feeling of connctedness the to self through them i.e. developing a center of the self.
+- Having the sense of your core values, and a feeling of connctedness to self through them i.e. developing a center of self.
 - Having deep feeling of connection to others, and deeper understanding of other perspectives. 
 - Having deep feeling of being part, feeling belong to this universe. 
 - Learning to balance between enjoyment and focus. Learning to balance and have a benefits of any two oposite states.
