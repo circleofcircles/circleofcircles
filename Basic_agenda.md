@@ -50,6 +50,8 @@ people who seek
 
 #### Daily practice.
 * Meditation (14 steps practice)
+* Goal setting in the morning, and day analysis in the evening. 
+* The same as above on higher cycle basis (once a week, month, year). 
 
 #### Long range goal setting. 
 * Having a good view of core values. Developing the skills to reflect upon them, and adapt them. 
