@@ -57,8 +57,8 @@ People who seek
 
 #### Long range goal setting. 
 * Having a good view of core values. Developing the skills to reflect upon them, and adapt them. 
-* Finding different goals of different time scale, that correspond with these core values
-* Reflecting upon those goals on a regular basis be on track. 
+* Finding different goals of different time scale, that correspond with these core values.
+* Reflecting upon those goals on a regular basis to be on track. 
 * Using promisses to self as a tool to keep the goals. 
 
 #### Learning from mistakes and adapting. 
@@ -72,7 +72,7 @@ People who seek
 * We have constant challenges in our life, we can treat them as mental puzzles reality creates for us. One can develop the skill to view, reflect and adapt different life situations into such puzzles
 * We can create exercise from those situations, or on the contrary view every situation as on the fly life leasson to be learned. 
 * We can challenge ourself with on the fly challenges which will take little focus but with great value. 
-* We can use our meditation practices, to solve and learn in the constant flow of dayly routine. 
+* We can use our meditation practices, to solve and learn in the constant flow of daily routine. 
 * We can also just notice that we couldn't solve the puzzle online, and take it off line (i.e. learning from mistakes). 
 
 #### Dialectics. Learning from resistance. 
