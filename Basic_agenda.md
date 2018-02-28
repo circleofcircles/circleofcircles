@@ -77,9 +77,9 @@ People who seek
 
 #### Dialectics. Learning from resistance. 
 
-* We can learn from books, movies and passive stuff, they can still challenge us intelectually, morally spiritually. 
+* We can learn from books, movies and passive stuff, they can still challenge us intellectually, morally spiritually. 
 * Many times other people can challenge us and our world view, we should learn and invest in deep dialogs with others. 
-* We sometimes don't understand ourselves. Many times at different mood or state of mind we think different things, this is dialectics inside onself. 
+* We sometimes don't understand ourselves. Many times at different mood or state of mind we think different things, this is dialectics with onself. 
 * The reality is sometimes stronger than our assumptions and expectations of it as of ourselves. Reality can challenge us many times more than friends and books and even more than ourselves. This mainly includes new expiriences which we gain through exiting the comfort zone. 
 
 ## Communication 
