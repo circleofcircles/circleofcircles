@@ -15,7 +15,7 @@ people who seek
 - One should always test and check the ideas on himself, if they don't work - they should be improved. 
 - This is basically personal science, and we try to develope different tools to improve personal reasearch. 
 
-### Why this is important: 
+### Why is this important: 
 
 - This is a skill set which is important to other life areas, by mastering it - you'll be able to improve in other areas greatly. 
 - Learning to learn, knowing how to managed yourself, feeling connected to oneself and others is a source of many goods in life. 
