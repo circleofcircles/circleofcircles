@@ -1,13 +1,13 @@
 The spirtuality gate
 =================
 
-# Who is this book for:
+### Who is this book for:
 
 Do you know the feeling when you come back from work, or wake up in the morning - and ask yourself, why am I doing this? what is this all for, and what this all means? You start to ask this question other people some of them quite smart,  but you either get obviously wrong answers (i.e. you're here to surve the masters i.e. god/s), or obviously stupid (to make money, to have as much pleasure as you can), or obviously meaningless (you're here to seek the answer, to discover the truth, to be enlightened). 
 
 Well if you know this feeling, and you're tiered of all the bulshit answers out there - this book is for you. We're trying to understand it outselves, without making any shortcuts, and you're welcome to join this path with us. 
 
-# How one should think about the ideas here:
+### How one should think about the ideas here:
 
 We realized for a while now, that every individual is very different from other individual. Not only in his genetics givens or in his history who were his parents, how he grew up, and from what social background he is. This is only the tip of the iceberg. Every individual has internal complex structure of his counssiosness, of things that he believes in, in things he's interested in, in things where he feels "himself". The internal world of every individual is quite unique and different, it "feels" different for every person, and I mean "very" different. 
 
@@ -17,7 +17,7 @@ So basically this is not a holly scripture, rather than continious atempt to und
 
 If some idea of this book doesn't work for you - we're encoureging you to speak, to think with us on how to improve it, to join the effort by criticising, listening, give improvement suggestion, as well as taking responsibility for your truth by developing your path of viewing the reality further, together with us. 
 
-# Why is this important: 
+### Why is this important: 
 
 When you're lost - the first thing you're looking for is a map. Having a map of a new place, you will already feel much more comfortable in it rather than just hope there from a plane. This is book is our best atempt to find, share and aknowledge our map. 
 
@@ -25,7 +25,7 @@ For example before you're leaning a new topic, wouldn't it be more effitient to 
 
 Think that before you want to learn how to learn, you want to know that learning is the answer at all? When you get into this deeper self exploration, maybe you've been told to learn a lot, but you should dance a lot instead? And maybe you should dance some specific dance instead of starting from ballet? This is kind of "meta" skills that one can develope and transfer to other areas in life. 
 
-# What is the "ideal" mental state: 
+### What is the "ideal" mental state: 
 
 Many traditions had discovered a long time ago a concept which can be called - unawareness. This is when we're in a regular state of mind responding automatically, without trying to trully figure out what is goind on. If you know some people who became religious, they can tell you they discovered "the light". This is actually true, they moved their counsseness from a state where everything is automatic to a state where evreything is new and fresh, and part of a big story. They suddenly have a role in the play, a new role in a new play. But when time is passing, the role is not new and the play is not new - and they basically return to the same place they started from i.e. they discover it's the same role in the same play. 
 
@@ -33,7 +33,7 @@ Yet still somehow religions had disvored this secret ingredient to human counsse
 
 Bascially the ideal state of mind is having a life which are part of a story that you trully chose to be part of, realizing all the consequences of that choice, while playing a role you know you want to play. 
 
-# How do we achieve this state:
+### How do we achieve this state:
 
 First we believe in systematic hard work over magic. I'm not saying that some words or expiriences can't take you to a new level, rather than thinking some magic will happen to you and everything will change, and all the bad stuff will disapear forever. It's a skill rather than a realization or an expirience, a skill you develop bit by but until you get where you want to be. 
 
