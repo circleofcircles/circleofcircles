@@ -93,7 +93,7 @@ Other people is a very reach source of self improvement. The different between c
 - In the same way many times we judge before we learned the detailes, this is also a way we project our believes on others. This is great source of learning, and self awareness. 
 - Aware dialog is a technique where we get into slower paste and try to focus solely on the dialog. This is where the dialog becomes meditation, we merge our realities through dialog and not only "having a nice conversation". 
 
-# What you should be moitoring
+# What you should be monitoring
 
 - You know how to deal with different challenging life situations. When you're bored, anxious, upset etc. 
 - Feeling more connected to yourself and belong to this reality. Less validation seeking from outside. 
