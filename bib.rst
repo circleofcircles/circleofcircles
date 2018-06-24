@@ -7,3 +7,7 @@ This will contain an expanding list of books, articles, stories poems and texts 
 - Cutting through Spiritual Materialism, Chögyam Trungpa
 - The Mystery of Presence, Ilan Amit
 - Catch 22, Jospeh Heller
+- True Self, False Self, Donald W. Winnicott
+- PiHKAL, a chemical love story, Alexander & Ann Shulgin
+- The Wise Heart: A Guide to the Universal Teachings of Buddhist Psychology, Jack Cornfield
+- חכמת המזרח, ניסים אמון
