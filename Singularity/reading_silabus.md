@@ -10,11 +10,11 @@
 #### רמה 2
 - [memes_and_I.md](memes_and_I.md)
 - [breaking_symmetry.md](breaking_symmetry.md)
+- [AI_singularity.md](AI_singularity.md)
 
 #### רמה 3
 - [god_consciousness.md](god_consciousness.md)
 - [god_and_I.md](god_and_I.md)
-- [AI_singularity.md](AI_singularity.md)
 
 #### סינגולריות
 - [god_singularity.md](god_singularity.md)
