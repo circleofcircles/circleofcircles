@@ -1,3 +1,13 @@
+נא לקרוא תחילה:
+
+
+ [תודעת אל](Singularity/god_consciousness.md)
+ 
+ [מרחק תודעתי](Singularity/consciousness_distance.md) 
+ 
+ [בינה מלאכותית וסינגולריות](Singularity/AI_singularity.md) 
+ 
+
 חקר תודעת האל דרך האני
 =====
 
