@@ -8,10 +8,10 @@
 - [the_self.md](the_self.md)
 
 #### רמה 2
+- [memory_gap.md](memory_gap.md)
 - [memes_and_I.md](memes_and_I.md)
 - [breaking_symmetry.md](breaking_symmetry.md)
 - [AI_singularity.md](AI_singularity.md)
-- [memory_gap.md](memory_gap.md)
 
 #### רמה 3
 - [god_consciousness.md](god_consciousness.md)
