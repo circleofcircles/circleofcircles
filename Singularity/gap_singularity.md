@@ -1,6 +1,6 @@
  נא לקרוא תחילה
- [עיקרון הסימולציה](simulation_principle.md)
- [פער הזיכרון](memory_gap.md)
+- [עיקרון הסימולציה](simulation_principle.md)
+- [פער הזיכרון](memory_gap.md)
  
 הסינגולריות
 ====== 
