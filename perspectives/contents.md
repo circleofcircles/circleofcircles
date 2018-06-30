@@ -32,3 +32,4 @@
 - Knowing that you're right
 - Empathy
 - Are descriptions of feelings metaphorical?
+- Meeting new people as man or woman.
