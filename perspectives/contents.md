@@ -1,25 +1,25 @@
 # Perspectives
 
-- Every person has different a perspective, and different perspectives over time.
-- You can only ever see your own perspective. Everything else is approximation and simulation.
-  - Typical Mind Fallacy.
-  - Different fundamental experiencing the world.
-- Reality is subjective. "Objective" reality is the parts we agree upon more, other parts less.
-  - Other entities are "real" inasmuch you can't simulate them properly.
-- Space of perspectives.
-  - Spirituality is the wind in this space.
-  - You can change anything, but not everything.
-  - Psychadelics enable rapid changes.
-- How to find new perspectives - where to look for them.
-- How to notice new perspectives - how to notice something eminates from a difference of perspectives.
-- Looking at yourself from the outside.
-  - Recognising and fine-tuning your perception.
-- Perspectives of non-human entities. They're difficult to empathize, because they're so different.
-- Words are based on common experiences.
-  - Interactive listening, always splitting the difference.
-  - Words as helping simulation.
-- Some other motivations.
-- Excercises?
+ - [x] Reality is subjective. "Objective" reality is the parts we agree upon more, other parts less.
+   - [ ] Other entities are "real" inasmuch you can't simulate them properly.
+ - [ ] You can only ever see your own perspective. Everything else is approximation and simulation.
+   - [ ] Typical Mind Fallacy.
+   - [ ] Different fundamental experiencing the world.
+ - [ ] Every person has different a perspective, and different perspectives over time.
+ - [ ] Space of perspectives.
+   - [ ] Spirituality is the wind in this space.
+   - [ ] You can change anything, but not everything.
+   - [ ] Psychadelics enable rapid changes.
+ - [ ] How to find new perspectives - where to look for them.
+ - [ ] How to notice new perspectives - how to notice something eminates from a difference of perspectives.
+ - [ ] Looking at yourself from the outside.
+   - [ ] Recognising and fine-tuning your perception.
+ - [ ] Perspectives of non-human entities. They're difficult to empathize, because they're so different.
+ - [ ] Words are based on common experiences.
+   - [ ] Interactive listening, always splitting the difference.
+   - [ ] Words as helping simulation.
+ - [ ] Some other motivations.
+ - [ ] Excercises?
 
 ## Examples
 
