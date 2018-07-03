@@ -2,7 +2,7 @@
 
  - [x] Reality is subjective. "Objective" reality is the parts we agree upon more, other parts less.
    - [ ] Other entities are "real" inasmuch you can't simulate them properly.
- - [ ] You can only ever see your own perspective. Everything else is approximation and simulation.
+ - [x] You can only ever see your own perspective. Everything else is approximation and simulation.
    - [ ] Typical Mind Fallacy.
    - [ ] Different fundamental experiencing the world.
  - [ ] Every person has different a perspective, and different perspectives over time.
