@@ -21,6 +21,7 @@
 
 - [simulation_principle.md](simulation_principle.md)
 - [consciousness_distance.md](consciousness_distance.md)
+- [memes.md](memes.md)
 - [the_self.md](the_self.md)
 
 #### רמה 2
