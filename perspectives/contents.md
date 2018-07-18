@@ -5,7 +5,8 @@
  - [x] You can only ever see your own perspective. Everything else is approximation and simulation.
    - [ ] Typical Mind Fallacy.
    - [ ] Different fundamental experiencing the world.
- - [ ] Every person has different a perspective, and different perspectives over time.
+ - [ ] Every person has different a perspective.
+   - [x] A person has different perspectives over time.
  - [ ] Space of perspectives.
    - [ ] Spirituality is the wind in this space.
    - [ ] You can change anything, but not everything.
