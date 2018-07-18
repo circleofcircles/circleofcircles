@@ -1,4 +1,4 @@
-# You can only see from your own perspective
+# You Can Only See from Your Own Perspective
 
 ## Perspectives
 
