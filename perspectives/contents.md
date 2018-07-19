@@ -8,7 +8,7 @@
  - [ ] Every person has different a perspective.
    - [x] A person has different perspectives over time.
  - [x] Space of perspectives.
-   - [ ] Spirituality is the wind in this space.
+   - [x] Spirituality is the wind in this space.
    - [ ] You can change anything, but not everything.
    - [ ] Psychadelics enable rapid changes.
  - [ ] How to find new perspectives - where to look for them.
