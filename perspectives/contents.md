@@ -11,7 +11,7 @@
    - [x] Spirituality is the wind in this space.
    - [x] You can change anything, but not everything.
    - [ ] Psychadelics enable rapid changes.
- - [ ] How to find new perspectives - where to look for them.
+ - [x] How to find new perspectives - where to look for them.
  - [ ] How to notice new perspectives - how to notice something eminates from a difference of perspectives.
  - [ ] Looking at yourself from the outside.
    - [ ] Recognising and fine-tuning your perception.
