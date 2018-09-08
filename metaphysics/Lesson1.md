@@ -10,11 +10,12 @@ Simple claim 3: And this is the simple premise that we anyway percieve our reali
 
 Exercises
 
-1. When you look at your environment instead of saying: chair, table, spoon, start saying: I notice a chair, I notice a table, I notice a spoon.
+1. When you look at your environment instead of saying: chair, table, spoon, start saying: I notice a chair, I notice a table, I notice a spoon. This exercise is succesful if you start to feel to some extent that the objecs around you are part of your perception, of a hologram your mind is creating for you. 
 
-1.1. Now when 1. is natural start saying: I notice that I noticed a chair, I noticed that I noticed the table. Here is very important not to be in a hurry and actually feel that I not only noticed, but also I noticed that I notice. 
+1.1. Now when 1. is natural start saying: I notice that I noticed a chair, I noticed that I noticed the table. Here is very important not to be in a hurry and actually feel that I not only noticed, but also I noticed that I notice. Here the success would be when you start to notice more and more "internal" psychological stuff which drive your behaviour. 
 
-1.2 Now there is no need to make more I noticed levels unless you feel like it make 5, 10 times. Just repeat it like a mantra, and feel it: 
+1.2 Now there is no need to make more I noticed levels unless you feel like it, make several levels just for practive. You can also just repeat it like a mantra, and feel it: 
+
 I noticed that:
 
 I noticed that: 
@@ -23,14 +24,16 @@ I noticed that:
 
 ....
 
+The success here is when you feel the "I notice" the new level as some sort of "feeling" that you can get deeper or shallow as you wish. Basically here you develop the feeling of noticing, it's like a muscle that you feel you can develop. 
+
 2. Now notice that noticing to notice is the other side of not noticing at all. You can notice, you can notice to notice, and you can not notice at all. This is part of the same procedure. Noticing is not better than not noticing, you're just using your mind to proccess information around you to behave optimally. Is this claim itself correct? Or the claim of noticing noticing? Am I trying now to notice something new, is this another way of noticing? Or maybe there is only one way to notice stuff? is this a climb up or maybe alternative claim? how do we know to prefer up over down? Am I trying to get up now or is it just another side of the same? Maybe we're not getting up we are always stuck in the same level which is "my mind" of each of us? 
 
-3. Watch some people behaviours, can you predict what they gonna do? Is it always the case? Who you have harder time to predict his behaviours, in what situations this happens and why? Who are the people you try to predict their behaviour? Why are you trying to predict their behaviour and how succesful you are? 
+3. Watch some people behaviours, can you predict what they gonna do? Is it always the case? Who you have harder time to predict his behaviours, in what situations this happens and why? Who are the people you try to predict their behaviour? Why are you trying to predict their behaviour and how succesful you are? Who are the people that cross your mind and why?
 
-4. Are there peoploe you can't predict what they gonna do? Maybe some people are more predictable to you than others? 
+4. Are there some people you can't predict what they gonna do? Maybe some people are more predictable to you than others? 
 
 5. Take a thing you percieved (a chair). Now feel that you gave it a name, you also know how it looks with some resolution, but you know very little truly about it. You know for example there is a very small chance the chair will jump at you and will eat you, but you don't know about that molecular soup at that point of space much. 
 
-5.1 Now think about an imaginary entity - like a meme (for example cinderella). Think that you know about her some stuff, with some resolution, maybe she has several versions, or several stories but you know the "idea" of this entity. Now think that this idea is real in the same sense the chair is real. You know about both of the some information, and you intract with them in different ways, and their perceptions i.e. the interface with them is very different, but eventually they belong to the same reality, but you see them with resolution in different spaces. 
+5.1 Now think about an imaginary entity - like a meme (for example cinderella). Think that you know about her some stuff, with some resolution, maybe she has several versions, or several stories but you know the "idea" of this entity. Now think that this idea is real in the same sense the chair is real. You know about both of the some information, and you intract with them in different ways, and their perceptions i.e. the interface with them is very different, but eventually they belong to the same reality, but you see them with resolution in different spaces. All you know about something is some very limited mental representation of them. 
 
 
