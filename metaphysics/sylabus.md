@@ -1,7 +1,4 @@
-1. 3d reconstruction of the universe. Quantum interpretation using many worlds (me as many creatures each part of which percieve only 3d for survival). 
-- Trying to conceptualize many dimentions. 
-- Me as 4 dimentional worm (+ time)
-- Me as 5 dimentional tree of choices. (Split decision in another dimention). 
+1. The reality is a hologram - reconstraction of the input of our senses. The matrix is not only what we see, but also how we think and what (the psychological aspect not only the "reality"). 
 
 2. Time. We load to our mind from the "big knowledge space" only what is needed for the current point. like CPU solving specific task. 
 - The future and the past are "near". We forget the long past, and don't see the long future. 
