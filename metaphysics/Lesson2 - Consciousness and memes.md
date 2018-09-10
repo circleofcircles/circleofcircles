@@ -13,3 +13,4 @@ Claim 4: Like you look at them to entertain you, they look at you (well basicall
 
 Exercise: See your life as movie. Go from age you remember to 100 (or whatewer age you are expecting to not live). As you get older and older you will see how you start to fill the gaps - this will give you a reference of the speed in years you are moving through). Make it a habbit to remind yourself you're in a movig movie. 
 
+Exercise: Watch a movie, see the all level that are happening. Your mind is enterpreting something which is done by actors that come from writer mind which draws absolute entities into character of the movie who is really exist in another dimention, and watching him is sort of communication from his universe to ours. Usually to feel it better one should see a movie in 0.3-0.5 speed.
