@@ -1,4 +1,4 @@
-1. The reality is a hologram - reconstraction of the input of our senses. The matrix is not only what we see, but also how we think and what (the psychological aspect not only the "reality"). 
+1. The reality is a hologram - reconstraction of the input of our senses. The matrix is not only what we see, but also how we think and what we feel (the psychological aspect not only the "reality"). 
 
 2. Time. We load to our mind from the "big knowledge space" only what is needed for the current point. like CPU solving specific task. 
 - The future and the past are "near". We forget the long past, and don't see the long future. 
