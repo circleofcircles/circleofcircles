@@ -38,4 +38,4 @@ Exercises:
 
 2. Look at yourself at different scales - for once each of your second is very complex proccess that takes years to learn and explore, on the other hand millions upon million of years pass, you're part of very big and complex society, you are part of biological species. Try to feel the absurdity of scales around you, and feel them. 
 
-3. Freestyle contemplation. Here what's important 
+3. Freestyle contemplation. Here what's important is that you will not let strong energies that passes through you as they are. Try to learn more about them, try to feel them more, try to understand them better. There is infinite amount of things which are going on around you, but there are several that you can pay special attention towards. Don't jump from topic to topic in your thoughts, also don't just repeat the thoughts, try to explore them, try to get deeper into the topics your though is wondering, try to control the boat towards things which are related to you. You can also stop from time to time to let something sunk in, to feel the insight, to actually meditate upon it and then move on. 
