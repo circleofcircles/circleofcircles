@@ -35,3 +35,5 @@ One of the largest goals of this book is to present the reader with this realiza
 3. Singularity course is made to develop the sense of distance (resolution) from different concepts, imagine how it would be when the distance is close to 0 to every entity (at least from the inside), and develop tools to increase and decrease the resolution of all the surrounding entities. 
 
 4. Perspectives course is made to develop this sense of wonder by realization that each person has his own unique "answer" to this "universal puzzle", and by seeing the diversity of answers develop the core sense of the unknown, and grasp the limits of our own represntation of reality.  
+
+5. Fractal nature of reality course. In this course we try to develop a deeper understanding of different concisenesses which soround us and part of us and we're part of them. Trying to reach a sense of understanding and awareness to the different aspects of conciseness and by doing so acquire deeper sense of being and harmony with the universe (develop some sense of meaning and purpose while still seeing through the relativeness and illusory aspect of those). 
