@@ -5,3 +5,4 @@
 - [Space of Perspectives](space.md)
   - [More Conclusions from Space of Perspectives](space2.md)
 - [How to Find Perspectives](finding.md)
+- [Looking at Yourself from the Outside](yourself.md)

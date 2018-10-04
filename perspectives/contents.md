@@ -13,7 +13,7 @@
    - [ ] Psychadelics enable rapid changes.
  - [x] How to find new perspectives - where to look for them.
  - [ ] How to notice new perspectives - how to notice something eminates from a difference of perspectives.
- - [ ] Looking at yourself from the outside.
+ - [x] Looking at yourself from the outside.
    - [ ] Recognising and fine-tuning your perception.
  - [ ] Perspectives of non-human entities. They're difficult to empathize, because they're so different.
  - [ ] Words are based on common experiences.
