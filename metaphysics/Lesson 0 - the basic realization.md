@@ -14,7 +14,7 @@ In general every concept and entity we have some information about, is limited t
 
 Automatization first of all makes us forget that we don't know — it creates the false sense of security. We stop thinking and analyzing, and we become "machines" that act without thinking. This is done by evolution so that we could focus on things which can't be easily automatized. Yet this what makes us forget the illusion, the wonder, the unknown which is all around us. 
 
-### Claim 5: The basic realization of spirituality is development of sense of wonder and fill for the unknown which is much greater than the known. Being on scale of transcendental experience. 
+### Claim 5: The basic realization of spirituality is development of sense of wonder and feel for the unknown which is much greater than the known. Being on scale of transcendental experience. 
 
 We can with practice develop this sense that everything around us is magical — is complex and very deep. We are point in space which tries to make sense of everything which is going on around us, and we can develop the sense this is a very partial project which makes us feel better and safer but it's not the project that reveals the true nature of things. We can feel the limit of our mind and see ourselves as beings and a collective which tries to improve this all the time — yet on the other hand feel the limits of this project. 
 
