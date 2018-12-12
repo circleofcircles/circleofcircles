@@ -11,7 +11,7 @@ The idea is to find the balance between the I and the "Other". The I should have
 ## Scales:
 
 Different entities live in different time scales. Starting from milliseconds, to billion of years. 
-The I is also divisible into small chunks of time. The I lives on scales between milliseconds, to 100 years. The I is part of the whole universe, and we see some "cut" of it at some random point. This cut can be viewed as a frame from movie which lasts billions of years. One can see eartch as the place for that movie. 
+The I is also divisible into small chunks of time. The I lives on scales between milliseconds, to 100 years. The I is part of the whole universe, and we see some "cut" of it at some random point. This cut can be viewed as a frame from movie which lasts billions of years. One can see earth as the place of that movie. 
 
 ## Synchronization:
 
@@ -31,13 +31,13 @@ As physical reality is very harsh, people and livings beings had developed proto
 
 ## Economics 
 
-Money it's a way to synchronize. It's the way of someone to say - this is what I have, and what I can pay to synchronize myself with reality or with other people. Money should be highly correlated with time for each individual. 
+Money it's a way to synchronize consiousness quantitatively - to project priority. It's the way of someone to say - this is what I have, and what I can pay to synchronize myself with reality or with other people. Money should be highly correlated with time for each individual. 
 
 ## Ideal reality 
 
-- Everyone should learn minimal language where they can communicate their internal state to others. 
-- Reality is synchronized on all scales. i.e. When you take some random person from random place at random time - he is cool with where he is. 
+- Everyone should learn minimal language so they can communicate their internal state to others. 
+- Reality is synchronized on all scales. When you take some random person from random place at random time - he is cool with where he is. 
 
 ## Practice
 
-Think of your time as the only resource you have. And solve the following question - what is the best way to invest the time, so that I could maximize synchronization with things I prefer to be in reality to make it closer to ideal, for myself and for others. Make zoom in and zoom out all the time and make sure you're on the right path. This is true for the I as for the I which is part of the collective. 
+Time is the only resource you have. Now solve the following question - what is the best way to invest the time, so that I could maximize synchronization with things I prefer to be in reality to make it closer to ideal, for myself and for others (balancing between the two). Make zoom in and zoom out all the time and make sure you're on the right path, as individual and as a collective. 
