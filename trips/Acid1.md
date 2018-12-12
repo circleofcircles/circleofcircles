@@ -31,7 +31,7 @@ As physical reality is very harsh, people and livings beings had developed proto
 
 ## Economics 
 
-Money it's a way to synchronize consiousness quantitatively - to project priority. It's the way of someone to say - this is what I have, and what I can pay to synchronize myself with reality or with other people. Money should be highly correlated with time for each individual. 
+Money it's a way to synchronize consiousness quantitatively - to project priority. It's the way of someone to say - this is what I have, and what I can pay to synchronize myself with reality or with other people. Money should be highly correlated with time for each individual, to prevent harsh asymmetry. 
 
 ## Ideal reality 
 
